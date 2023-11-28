@@ -23,3 +23,9 @@ I love their pins!
 - https://www.etsy.com/ca/listing/826023165/trans-witch-cauldron-pin-enamel-lapel?click_key=1ad1e77616bbc22d2e6c9bf39f0e285cfb8ba632%3A826023165&click_sum=ef507d05&ref=shop_home_active_4&pro=1
 - https://www.etsy.com/ca/listing/728263195/trans-symbol-pentacle-gold-or-silver?click_key=f23fac37e8daebe8bf0215068e9429b3662e33d7%3A728263195&click_sum=328b1468&ref=shop_home_active_15&pro=1
 - https://www.etsy.com/ca/listing/1484438647/trans-magic-pin-enamel-lapel-pin-trans?click_key=f457f03955b4ee1e433c6bd3ecbfc74b8e86533c%3A1484438647&click_sum=71696460&ref=shop_home_active_13&pro=1
+
+## Discogs
+Some music I like!
+
+- https://www.discogs.com/sell/release/27840903?ev=rb
+- https://www.discogs.com/sell/release/26948018?ev=rb
